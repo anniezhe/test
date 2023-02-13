@@ -1,1 +1,1 @@
-# Hi! My name is Annie!
+# Hi! My name is Annie! I'm based in new york city and currently attending CUNY John jay
